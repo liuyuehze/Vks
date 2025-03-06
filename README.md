@@ -1,1 +1,1 @@
-ymabcapi.vkssleasing.comsifjowe
+vklinfo~api.vkssleasing.com~infou
